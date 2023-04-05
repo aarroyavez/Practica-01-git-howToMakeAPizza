@@ -14,6 +14,6 @@ Precalienta el horno a 160ºC durante maximo  20 minutos
 
 Esparce un poco de la salsa de tomate, agrega queso, coloca el jamón y la piña.
 
-Hornea a 200°C por 20 minutos.
+Hornea a 200°C por 15 minutos.
 
 Saca la pizza del horno, córtala, sirve y disfruta.
